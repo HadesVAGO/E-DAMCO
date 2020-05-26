@@ -1,4 +1,4 @@
-# Para que sirve la zoologia? 
+# ¿Porque es importante la Zoologia? 
 Esta pagina esta enfocada en la educación ambiental de los niños y jóvenes de nuestra sociedad.
 
 ## Objetivo
